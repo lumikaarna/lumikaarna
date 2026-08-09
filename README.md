@@ -1,5 +1,5 @@
-### Hello, I am usually off-tab or looking for chat. I suggest you check my status and whisper if you want to talk to me. (although, don't hold yourself back from whispering even if im on DND)  I'm usually open to taking part in conversations! c+h freely anytime :] ‼️
-***
+### Hello, I am usually off-tab or looking for chat. I suggest you check my status and whisper if you want to talk to me. (although, don't hold yourself back from whispering even if im on DND)  I'm usually open to taking part in conversations! c+h freely anytime :] ‼️ <br>
+###### ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 Proshippers DNI. I am not a shipper. Regardless, I will respect your ships as long as they're not problematic.<br>
 I'm not comfortable with carrying out overly romantic roleplays or displays of romantic gesture. Please be cautious. <br>
 <br> Subtle flirting is okay 👀 Although, I prefer to know your age before we do so. <br>
